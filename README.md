@@ -1,1 +1,1 @@
-# product-card
+# product-card of sugar cosmetics lip products
